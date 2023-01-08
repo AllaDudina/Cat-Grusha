@@ -8,4 +8,4 @@
 3. Она громко храпит
 4. И надо наконец записать ее к грумеру 
 
-![Груша](https://photos.app.goo.gl/BjaQ1r3DzzPKQNyT8)
+![Груша](https://photos.google.com/share/AF1QipOKK-HC2gV4fwsmImjVedjGoWubsfRxkacw624pgdfSzWy5HsxdAJIcYNmPeWgwAQ/photo/AF1QipPjkSsmg5egp88_-WNmmqkxe2Img-rrgTY4ZPPt?key=UmtJSGpBckZYVmkzRmVUbHJrUVJOblhGM095OEZn)
